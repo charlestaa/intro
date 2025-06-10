@@ -2,7 +2,7 @@
  
 ![image](https://github.com/user-attachments/assets/427921b3-73fd-49e2-a051-6b0a2e6872c3)
 
-!! >ᵥ_ᵥ< CHARLES !  ![image](https://github.com/user-attachments/assets/ed58978e-3a9f-445b-b37c-4b08fac2438a)
+!! >ᵥ_ᵥ<KAI !  ![image](https://github.com/user-attachments/assets/ed58978e-3a9f-445b-b37c-4b08fac2438a)
 
 ; 𓎢　 MINOR ; AUTISTIC!  ![gif](https://64.media.tumblr.com/c976c1f0110dff524dead5bde74dd5df/09b0656ab042c182-ac/s75x75_c1/888d378a91f5776307c5c5633ed9c5c7e094b4e5.gifv)   ![image](https://github.com/user-attachments/assets/a58daf60-33a9-473a-9c07-4082b46d7f4a)
  🦇 ⭔﹕ ![image](https://github.com/user-attachments/assets/65af1f47-8e4b-4652-98ef-49bea9cd2d48)
